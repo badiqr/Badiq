@@ -1,0 +1,2 @@
+# Badiq
+Khoirunnas Anfauhumlinnas
